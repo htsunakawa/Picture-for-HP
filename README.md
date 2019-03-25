@@ -7,19 +7,19 @@
 <br />
 
 ![d8-k-Cl](https://user-images.githubusercontent.com/44130742/54900064-45795d80-4f15-11e9-8133-75bcd350ad9e.jpg)
-# d8-k-Cl
+# d8-&kappa;-Cl
 
 <br />
 <br />
 
 ![h8-k-Cl](https://user-images.githubusercontent.com/44130742/54900066-47dbb780-4f15-11e9-9ea6-eeb6c790bfe2.jpg)
-# h8-k-Cl
+# h8-&kappa;-Cl
 
 <br />
 <br />
 
 ![ICl2](https://user-images.githubusercontent.com/44130742/54900069-49a57b00-4f15-11e9-9d3a-8abac1e67fd7.jpg)
-# b'-ICl2
+# &beta;'-ICl2
 
 <br />
 <br />
